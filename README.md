@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JordyMartinez
-- 👀 I’m interested in Proggraming, cibersecurity, ethic hacking, develop web and basketball
+- 👀 I’m interested in Proggraming, cibersecurity, ethical hacking, develop web and basketball
 - 🌱 I’m currently learning develop web
 - 💞️ I’m looking to collaborate on all people need help
 - 📫 How to reach me jordyjmru@gmail.com my personal email
